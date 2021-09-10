@@ -1,7 +1,7 @@
 # 🌊🌊🌊🌊🌊🌊🌊
 ![image](https://user-images.githubusercontent.com/75282888/132877939-bb2398b3-7eb9-4230-9d75-d9b6656fed98.png)
 
-![부캠AIT2기_네임카드 pptx](https://user-images.githubusercontent.com/75282888/132878007-5a581007-9f8d-4548-94ef-5cd34dead123.png)
+![부캠AIT2기_네임카드 (부캠 로고 지움)의 사본](https://user-images.githubusercontent.com/75282888/132879366-91aefdd3-3b3c-46fb-b73d-d12e8e374615.png)
 
 
 ![KakaoTalk_20210814_222408426](https://user-images.githubusercontent.com/75282888/129447692-01e7264f-af53-46c6-9704-da8641ec9e19.jpg)
