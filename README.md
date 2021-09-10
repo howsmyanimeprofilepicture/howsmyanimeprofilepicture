@@ -1,5 +1,5 @@
 # 🌊🌊🌊🌊🌊🌊🌊
-![image](https://user-images.githubusercontent.com/75282888/132877939-bb2398b3-7eb9-4230-9d75-d9b6656fed98.png)
+![image](https://howsmyanimeprofilepicture.github.io/docs/Projects/Viz/%ED%8C%8C%EC%9D%B4%ED%86%A0%EC%B9%98%20%EB%AA%A8%EC%97%90%ED%99%94.assets/image-20210821223738061.png)
 
 ![부캠AIT2기_네임카드 (부캠 로고 지움)의 사본](https://user-images.githubusercontent.com/75282888/132879366-91aefdd3-3b3c-46fb-b73d-d12e8e374615.png)
 
