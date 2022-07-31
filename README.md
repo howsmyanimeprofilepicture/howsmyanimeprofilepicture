@@ -1,4 +1,1 @@
-$$
-{\color{red} H}
-{\color{blue} O}
-$$
+I was going to code javascript...
